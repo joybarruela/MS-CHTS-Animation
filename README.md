@@ -7,5 +7,7 @@ In partial fulfillment of the requirements for Multimedia Systems
 Members:
 
 Brigoli, Mary Rose B.
+
 Barruela, Marie Joy B.
+
 Garcia, Nicole Mae M.
